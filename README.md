@@ -1,4 +1,4 @@
-Private/Temporart Repo For Brandon Voorvelt.
+Private/Temporary Repo For Brandon Voorvelt.
 Please contact me for more details.
 
 Brandon Voorvelt
